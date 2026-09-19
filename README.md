@@ -1,5 +1,5 @@
 # 💫 About Me:
-🛠 Working on: Aether<br>🌟 Developer at: Cerium Studios<br>🤝 Contributed to: Relic, Aether.<br>🔨 Developer on: Roblox, Vs code, 
+🛠 Working on: Aether<br>🌟 Developer at: Cerium Studios<br>🤝 Contributed to: Relic, Aether.<br>🔨 Developer on: Roblox, Vs code, Blender, GitHub
 
 
 ## 🌐 Socials:
